@@ -2,7 +2,7 @@
 - 👀 I’m interested in fashiom and modelling
 - 🌱 I’m currently learning digital marketing
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me harshkumar7832@gmail.com
+- 📫 How to reach me and contact me gmail: harshkumar7832@gmail.com, website: sanjaykumarro.com/
 
 <!---
 digimarketharsh/digimarketharsh is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
